@@ -1,0 +1,12 @@
+- 👋 YO IM KILLURA AND IM YOUR WORST NIGHTMARE JK HAHA
+- 👀 I WANT TO KNOW MORE ABOUT ROBLOX LUA
+- 🌱 RN IM WORKING ON A FNAF ROBLOX GAME CALLED "The Lost Souls"
+- 💞️ IF ANYONE WANTS TO BE FAMOUS U CAN DECIDE TO COLLAB WITH ME
+- 📫 HOW I KNOW YOU WNNA HELP IS BY FOLLOWING ME ON ROBLOX AND THEN ILL KNOW 
+- 😄 Pronouns: HIM HIS HE BLAH BLAH
+- ⚡ Fun fact: I DONT CARE FOR FUN FACTS
+
+<!---
+KILLURA701-URWORSTNIGHTMARE/KILLURA701-URWORSTNIGHTMARE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
